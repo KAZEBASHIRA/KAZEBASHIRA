@@ -1,3 +1,1 @@
-![](https://64.media.tumblr.com/f3dd7887bb171095f604c2d40fc1a506/aff3d67bb033ff1c-96/s1280x1920/fc1b1a44a03c76e1ed39df4a619e22199e93357f.webp)
-
-${\textsf{\color{#FE84A9} sanemi fictkin, doubles iwc. ships are ok}}$
+![x](https://64.media.tumblr.com/d31823f2b796884f35f4d6c2c8094b9c/0738d7e8713a1a92-e0/s1280x1920/6f0bc91ce1176d26139317d5ed2880df50230d95.gifv)
